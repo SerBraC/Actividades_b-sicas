@@ -1,1 +1,1 @@
-# Actividades_b-sicas
+# Actividades_básicas
